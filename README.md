@@ -1,7 +1,6 @@
 # **One Word** 
 
-## <ins>***brainstorming:***</ins>
-#
+## <ins>***Brainstorming part1:***</ins>
 ##### **Normal**/*normally* ***VS*** **usual**/*usually*
 - Normal – out of the norm
 - Normally I buy things but today I decide to go somewhere else.
@@ -10,7 +9,7 @@
 - Before doing this assignment, as it had told us to do – in class I have heard that I was not the only one who thought of this certain word?
 - And why is that?
 - Connection to mental health
-#
+
 ##### **Literally**
 -	In a literal sense
 - In modern slang its used in sentence when the speak does not actually mean it in a literal sense
@@ -37,7 +36,7 @@
 -	And very interesting take: nonbinary linguistics (which I saw recently) – where a person teaches about vocabulary that is respectful and inclusive for LGBTQ+ folks.
 
 
-
+# <ins>***Brainstorming part2:***</ins>
  # **Normal** 
   ***1st half =  draft; 2nd half = more brainstorming***
  #
