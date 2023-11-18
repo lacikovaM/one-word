@@ -1,6 +1,6 @@
 # **One Word** 
 
-## ***brainstorming:***
+<ins>## ***brainstorming:***</ins>
 #
 ##### **Normal**/*normally* ***VS*** **usual**/*usually*
 - Normal – out of the norm
