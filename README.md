@@ -1,6 +1,6 @@
 # **One Word** 
 
-## <ins>***Brainstorming part1:***</ins>
+## <ins>***Brainstorming part 1</ins>:***
 ##### **Normal**/*normally* ***VS*** **usual**/*usually*
 - Normal – out of the norm
 - Normally I buy things but today I decide to go somewhere else.
@@ -36,7 +36,7 @@
 -	And very interesting take: nonbinary linguistics (which I saw recently) – where a person teaches about vocabulary that is respectful and inclusive for LGBTQ+ folks.
 
 
-# <ins>***Brainstorming part2:***</ins>
+# <ins>***Brainstorming part 2</ins>:***
  # **Normal** 
   ***1st half =  draft; 2nd half = more brainstorming***
  #
