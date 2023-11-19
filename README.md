@@ -58,8 +58,45 @@ Conforming to things that are expected in society, but if not things are not nor
 - *Normality* is usually seen as **good and desirable by society and what society** thinks while abnormality may be seen as bad or undesirable (Boundless).
 - normal things are connected to behaviour and patterns in a daily routine 
 - comfort zones - how comfortable you are stepping outside the normal
-- *“i just want to be normal”* - i just want to be like everybody else - but if everyone was normal and everyone would be the same - with no quietness in the world how would that look  -  VERY BORING AND MONOTONE - AND PREDICTABLE so predictable - normal things are predictable not normal things are not 
-- normal things are expected in social events  — great expectations! 
+
+##   <ins>***Organizing my notes***</ins> 
+Then after two brainstorming sessions I got lost. I had many brainstormed ideas still in chaotic notes.
+So first I asked ChatGBT *`"i am about to give you a text, your job is to find the main 3 topics"`* The text was part two of the brainstorming. Here is what it gave me:
+
+**`1. Conformity and Social Norms `**
+
+**`2. Health and Well-being`**
+
+**`3. Diversity and Uniqueness`**
+
+My next step was to organise my notes (from my second brainstorming)  so I asked ChatGBT again:
+*`"I am about to give you a text. Sort the text by following topics: 1. health, 2. social norms, 3. creativity and originality. Do not change any words of the text."`*
+
+This is how it sorted out my notes:
+
+**`Health:`**
+- "When someone says this is not ok it means this is not healthy there is something wrong or broken and it needs to be fixed."
+- "Overgeneralisation and prejudice."
+
+**`Social Norms:`**
+- "Conforming to things that are expected in society, but if not things are not normal, they are out of that norm."
+- "In closed-minded communities of the word this is a huge problem you can be viewed as a sick/ill/ not healthy person and be cast out to the corner."
+- "There for the usage of this word can show a person’s social background – in one society a certain behaviour can be seen as out of the norm in the other it might be alright. It can show what values a certain person or family has."
+- "people are afraid of things that are not normal - it scares them cause they don't understand it - the fear of the unknown, uncertain of things."
+- "normal things are connected to behavior and patterns in a daily routine."
+- "normal things are expected in social events — great expectations!"
+
+**`Creativity and Originality:`**
+- "In creative industries things that are not normal can be viewed as thinking out of the box and those ideas are often praised."
+- "i just want to be normal" - i just want to be like everybody else - but if everyone was normal and everyone would be the same - with no quietness in the world how would that look - VERY BORING AND MONOTONE - AND PREDICTABLE so predictable - normal things are predictable not normal things are not."
+
+
+
+
+
+
+
+
 
 
 
