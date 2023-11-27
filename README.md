@@ -90,8 +90,22 @@ This is how it sorted out my notes:
 - "In creative industries things that are not normal can be viewed as thinking out of the box and those ideas are often praised."
 - "i just want to be normal" - i just want to be like everybody else - but if everyone was normal and everyone would be the same - with no quietness in the world how would that look - VERY BORING AND MONOTONE - AND PREDICTABLE so predictable - normal things are predictable not normal things are not."
 
+#
+*(first draft)*
+# **Normal**
 
 
+Every time I hear the word *normal* (in any form)  I cringe. It's such a vague term. From person to person, *normal* could mean entirely different things.
+
+Firstly this word is so overused by people who try to reprove others. The phrase *“ Behave normally”* to be exact. In my case, it is **normally** when, One: I am very expressive - I am too excited, I am too angry - I am overreacting or Two I don't express an emotion that is expected of me in a particular situation. In this case means a set of rules that are expected out of an individual in society, that are the norm.
+
+What can be out of the norm? usually behaviour or someone else's health - in cases of physical health  “That is not normal to have a temperature that high. You are sick and need a  proper treatment. But it can be an issue when speaking in terms of mental health, cause in some communities some stuff might be frowned upon and treated as a sickness but in fact, it might be not (ex. homosociality).
+
+This also comes to an interesting viewpoint: people are afraid of things that are out of the norm, it is unpredictable and people are scared of unknown things.
+
+On the other hand, things that are not normal can *also* be praised  It masks itself as originality and creativity. It's something new and steps out of the norm.
+
+That causes a question: How a world that is normal would look? Very boring and monotone!  Same kind of trees and the same kind of environment. Same everything. People would like identical copies of one another behaving in the same way as if they were robots destined to go in one and only path. 
 
 
 
