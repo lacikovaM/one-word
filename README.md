@@ -107,8 +107,21 @@ On the other hand, things that are not normal can *also* be praised  It masks it
 
 That causes a question: How a world that is normal would look? Very boring and monotone!  Same kind of trees and the same kind of environment. Same everything. People would like identical copies of one another behaving in the same way as if they were robots destined to go in one and only path. 
 
+#
+# **NORMAL** 
+Every time I hear the word *normal* in any form, I cringe. It is such a vague term. From person to person, *normal* could mean entirely different things.
 
+Firstly, this word is so overused by people who try to reprove others. They say: *“Behave normally.“* In my case, I hear this phrase when I am being very expressive, or too excited, or too angry - I am overreacting or I am not expressing an emotion that is expected from me in a particular situation. Therefore, we could define the norm as set of rules that are expected from an individual in society, 
 
+What can be out of the norm? It is usually behaviour or someone else's health - in cases of physical health *“That is not normal to have a temperature that high. You are sick and need a proper treatment."* But it can be an issue when speaking in terms of mental health, because in some communities some manners might be frowned upon and regarded or even treated as a sickness but in fact, it might not be the case. 
+
+This also comes to an interesting viewpoint: people are afraid of things that are out of the norm, are somehow unpredictable. Humans have been always scared of unknown things.
+
+On the other hand, how would normal world look like? Extremely boring and monotone!  Same kind of environment, people, animals etc. Same everything! People would be identical copies of one another behaving in the same way as if they were robots. 
+
+On the other hand, things that are not normal can *also* be appreciated It masks itself as originality and creativity. It is something new that steps out of the norm in a positive way.
+
+Nevertheless, there is often a very thin line between abnormalities which are highly recognized by the society as something extraordinarily creative and original, and abnormalities that become an object of ridicule. 
 
 
 
